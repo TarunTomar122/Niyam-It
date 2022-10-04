@@ -1,1 +1,1 @@
-# Niyami-It
+# Niyam-It
